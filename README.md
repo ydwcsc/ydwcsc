@@ -1,4 +1,10 @@
-##  HONG KONG, Tsinghua University 2025 software engineering
+##  Hello, my babies! 💖 
+  🏠 [Hometown]:HANG ZHOU
+  
+  🎓 [Master]:Tsinghua University 2025 software engineering
+  
+  💳 [Undergraduate]：Hangzhou Dianzi University 2020 AI
+  
   Transgender🏳️‍⚧️, otaku🥱, vegetarian🥗, environmentalist🌍🌱, childfree👶🚫, fundamentalist📜🚫, cognitive disorder🧠⚠️, depression😞🧠, cat lover🐱❤️, Black🖤, athlete⚽🏀, bisexual🌈 .
 
 
