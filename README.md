@@ -1,4 +1,6 @@
-## Hi there 👋
+##  HONG KONG, Tsinghua University 2025 software engineering
+  Transgender🏳️‍⚧️, otaku🥱, vegetarian🥗, environmentalist🌍🌱, childfree👶🚫, fundamentalist📜🚫, cognitive disorder🧠⚠️, depression😞🧠, cat lover🐱❤️, Black🖤, athlete⚽🏀, bisexual🌈 .
+
 
 <!--
 **ydwcsc/ydwcsc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
